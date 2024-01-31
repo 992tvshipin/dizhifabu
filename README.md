@@ -1,17 +1,17 @@
 ## **992KP快樂看片 最新地址发布页**
 ## 此发布页永久可用，请务必将本站加入收藏，开车永不迷路！
 ## 微信用户和QQ用户请复制到浏览器访问！
-### 最新地址：https://992kp.ttb8ttb.com
+### 最新地址：https://992kp.hhx6hhx.xyz
 
-### 最新地址：https://992kp.aat77aat.work
+### 最新地址：https://992kp.ggh66ggh.work
 
-### 最新地址：https://992kp.ees3ees.xyz
+### 最新地址：https://992kp.ppb6ppb.xyz
 
-### 最新地址：https://992kp.ddb3ddb.xyz
+### 最新地址：https://992kp.cch1cch.xyz
 
-### 最新地址：https://992kp.eep88eep.work
+### 最新地址：https://992kp.rrc44rrc.work
 
-### 最新地址：https://992kp.rrt3rrt.xyz
+### 最新地址：https://992kp.aae7aae.xyz
 
 
 ## 网址随时可能会被和谐，请务必收藏或分享本页以获取最新网址，收藏访问老司机不迷路！
@@ -24,5 +24,5 @@
 每一个网站都有一个情怀，我们的情怀就是：干净、资源种类齐全、坚持用户体验至上！好站不可多得，仅此一家
 
 ## 发送任意邮件到：chihan@mail.com，即自动回复最新地址
-## 地址发布：https://992dizhi89.com  (992地址)
+## 地址发布：https://992dizhi90.com  (992地址)
 ## 海外华人永久看片地址：https://992kp.com  https://992dizhi.com
