@@ -1,17 +1,17 @@
 ## **992KP快樂看片 最新地址发布页**
 ## 此发布页永久可用，请务必将本站加入收藏，开车永不迷路！
 ## 微信用户和QQ用户请复制到浏览器访问！
-### 最新地址：https://992kp.xx2912xx.xyz
+### 最新地址：https://992kp.kk8077kk.xyz
 
-### 最新地址：https://992kp.xx2912xx.link
+### 最新地址：https://992kp.kk8077kk.link
 
-### 最新地址：https://992kp.kk3888kk.xyz
+### 最新地址：https://992kp.kk3711kk.xyz
 
-### 最新地址：https://992kp.kk3888kk.link
+### 最新地址：https://992kp.kk3711kk.link
 
-### 最新地址：https://992kp.kk9822kk.xyz
+### 最新地址：https://992kp.kk8800kk.xyz
 
-### 最新地址：https://992kp.kk9822kk.link
+### 最新地址：https://992kp.kk8800kk.link
 
 
 ## 网址随时可能会被和谐，请务必收藏或分享本页以获取最新网址，收藏访问老司机不迷路！
